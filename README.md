@@ -1,1 +1,1 @@
-I know I am cool 👣💄
+Front-end Developer in Seoul 🇰🇷
